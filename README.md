@@ -1,0 +1,2 @@
+# APLICACION-DE-IA-EN-LA-PROTECCI-N-DEL-PATRIMONIO-ARQUEOLGICO
+La arqueología no invasiva o arqueología preventiva y su amplificación en la práctica arqueológica, en la formación y divulgación.  Es el momento de desarrollar estrategias en la búsqueda de la tercera vía en la práctica arqueológica, no hay que escavar todo, como tampoco hay que renunciar al conocimiento. La estrategia a desarrollar, debe basarse en la sostenibilidad, el conocimiento y la protección del patrimonio arqueológico. 
